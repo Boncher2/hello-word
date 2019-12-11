@@ -1,2 +1,4 @@
 # hello-word
-Lalala
+Omg how to do this:D
+
+Hello, I am ukrainian:D
